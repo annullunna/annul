@@ -1,0 +1,2 @@
+# annul
+observasi
